@@ -1,0 +1,6 @@
+![5254556](https://github.com/Puran167/Portfolio/assets/144983194/575d9050-a340-4ac0-ae6e-57a2e456044f)
+![BD](https://github.com/Puran167/Portfolio/assets/144983194/3b1a292a-3a0a-4ac9-bfef-26c3a9c4bf0c)
+![C](https://github.com/Puran167/Portfolio/assets/144983194/b08ac780-76cb-457b-a431-1e9981edd83c)
+![X](https://github.com/Puran167/Portfolio/assets/144983194/498654c8-f00a-42ef-bf7a-1187635f5b26)
+![Z](https://github.com/Puran167/Portfolio/assets/144983194/264ccc51-8e2d-4bd7-accc-06bca07f2627)
+![123](https://github.com/Puran167/Portfolio/assets/144983194/36c23af9-0981-4d2b-8ae8-dad92028d921)
